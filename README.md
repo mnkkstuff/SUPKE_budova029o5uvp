@@ -1,1 +1,0 @@
-# SUPKE_budova029o5uvp
